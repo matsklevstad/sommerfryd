@@ -1,1 +1,1 @@
-Sommerfryd treningssenter
+Nettside for Sommerfryd treningssenter 
